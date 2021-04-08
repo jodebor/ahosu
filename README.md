@@ -3,4 +3,5 @@ Alimentations saines naturelles
 
 Natural healthy diets
 
-![Image](LOGO-AHOSU-LIONcopie.jpg)
+![Image](LOGO-AHOSU-LION copie.jpg)
+
